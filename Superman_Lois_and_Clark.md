@@ -1,4 +1,4 @@
-### Chapter 1: Arrival, Part 1
+### Chapter 1: Arrival
 
   Sau khi Covergence kết thúc, Superman (Kal-El của New Earth) cùng Lois và Jon đến sống tại Prime Earth. Một trái đất non trẻ bị tấn công bởi Darkseid. Trong cuộc chiến với Darkseid thì Superman đứng từ xa quan sát, có thời điểm anh đã định ra mặt giúp đỡ nhưng Cyborg đã hành động kịp lúc.
   
