@@ -42,4 +42,19 @@
   
   Tại California, Bruno Manheim nhận được rằng cuộc tấn công nhắm vào Author X đã bị thất bại. Quá thất vọng, hắn ném 2 người đàn ông đưa tin xuống bể bơi sau đó dùng kích điện thả xuống bể bơi.
   
-  Ở ngoài vũ trụ, kẻ chinh phục bí ẩn đã tần công 1 tàu của Dominator để tìm Oblivion Stone. Sau khi biết đc rằng nó đang ở hệ mặt trời, cô ta đã giết tên thống đốc và bỏ đi. H
+  Ở ngoài vũ trụ, kẻ chinh phục bí ẩn đã tần công 1 tàu của Dominator để tìm Oblivion Stone. Sau khi biết đc rằng nó đang ở hệ mặt trời, cô ta đã giết tên thống đốc và bỏ đi. Hết chapter 3
+  
+  ### Chapter 4
+  
+  Cách đây vài năm, để kỷ niệm lễ cưới của mình Clark và Lois đã đến thăm Metropolis để xem nó khác biệt như nào với Metropolis của họ. Họ đã nhờ Sheldon và Christy chăm sóc Jont trong lúc vắng mặt. Trong lúc dạo phố họ nhận ra người đàn ông thổi saxophone tên là Harley và người này cũng nhận ra Clark. Lois có hơi lo âu vì điều đó nhưng Clark trấn an cô rằng có thể Harley nghĩ anh là Clark của thế giới này. Sau đó Lois quyết định mua một chiếc áo Supermen cho Jon bởi vì cô nghĩ rằng Jon chỉ có một siêu nhân duy nhất ở thế giới này. Sau đó họ cũng đã vô tình gặp Jimmy Olsen của thế giới này. Trở lại phòng khách sạn của mình, Clark cũng nhận được một món quà từ Lois đó chính là bộ đồ siêu nhân hiện tại của anh, bộ đồ được làm từ một loại vải polymer đặc biệt mà Lois có được từ đặc quyền với tư cách con gái của Sam Lane. Họ hứa với nhau rằng dù chuyện gì xảy ra thì họ sẽ luôn là chính họ.
+  
+  Trở lại hiện tại, Lois và Jon đang có mặt tại California để Lois có kể chắc chắn rằng Cora vẫn an toàn. Cora không chỉ là người xuất bản, cô ấy là một người bạn của Lois. Dù Lois không muốn mang theo Jont tới đây nhưng cô cũng không thể để cậu nhóc ở nhà. Khi họ có mặt tại văn phòng của Cora thì trong lúc Jont chờ ở quầy lễ tân thì Lois đã phát hiện trên bàn làm việc của Cora có một mảnh giấy ghi rằng Intergang đã bắt cô ấy. Ở ngoài Jont cũng tìm thấy một tờ báo tiết lộ danh tính của Superman là Clark Kent. Cậu bé đã nhanh tay xé một mảnh giấy bỏ vào túi trước khi Lois kéo cậu ra khỏi đó. Lois dùng kính đen và mũ lưỡi chai để ẩn mình khi ra ngoài văn phòng, khi vừa ra khỏi con hẻm thì họ tình cờ gặp Bruno Manheim. Dù anh ta chỉ hỏi đường nhưng Lois biết rằng anh ta đang chỉ cố khiến cô mất cảnh giác và cô nắm chặt khẩu súng trong túi xách để đề phòng. Khi Lois và Jon rời đi thì Manheim thể hiện rằng mình đã có được thứ mình cần.
+  
+  Trong lúc này, Superman đã thoát ra khỏi đống đổ nát mà Hanshaw đã ném vào anh, anh lao tới tìm kiếm Blanque nhưng Henshaw đã giải thoát hắn. Sức mạnh của Superman giảm dần khi tiếp xúc với mặt trời của thế giới này nhưng trong tình cảnh này anh vẫn sẵn sàng chiến đấu chống lại Blanque. Blanque tấn công Superman và ném anh ra xa ngọn núi sau đó chuẩn bị sẵn sàng để tới California.
+  
+  Trong không gian, kẻ chinh phục bí ẩn đã lùng sục một tại 1 trạm vũ trụ bỏ hoang gần Europa, mặt trăng thứ 6 của sao Mọc. Các cư dân ở đâu đều đã chết nhưng cô ta tìm thấy một ghi chép rằng một tàu vũ trụ đã rời trạm nhiều năm trước và nó hướng về phía trái đất. Hết chapter 4.
+  
+  
+  
+  
+  
