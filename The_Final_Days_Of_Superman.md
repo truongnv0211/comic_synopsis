@@ -49,6 +49,14 @@
   
   Trong khí đó, Denny Swan, kẻ giả mạo Superman đang ngày càng tức giận, hắn cho rằng mình bị mạo danh bởi kẻ khác và WW đã phản bội anh ta, anh ta cần ra ngoài. Hắn liên tục tấn công bức tường năng lượng giam giữ mình trước khi hòa tan chúng bằng Solar Flare, ngay khi thoát ra hắn lao thẳng tới tấn công WW. Sự việc trên đã gây ra sự cố mất điện và Ulysses đã lợi dụng điều đó để tấn công Superman. Sau khi giao chiến với WW, Denny đã tìm được được trốn thoát. WW không đuổi theo mà cô lao đến phòng giam của Ulysses, khi cô đến nơi thì Ulysses và Superman đã ngừng chiến đấu. Ulysses cười to vì hắn không cần giết Superman nữa vì Clark đã sắp chết. Hết Chapter.
   
-### B
+### Batman/Superman #32
+
+  Superman, Batman và WW theo dõi dấu vết năng lượng của kẻ mạo danh Superman, manh mối về dấu vết của Solar Flare từ vệ tinh của tập đoàn Waynetech đã đưa họ đến biên giới của Trung Quốc. Sau khi vượt qua biên giới họ đã gặp nhóm The Greate Ten. Đội siêu anh hùng của Trung Quốc muốn Trinity ra khỏi đất nước của họ. Sau một cuộc đụng độ ngắn thì nhóm Great Ten đã đồng ý lắng nghe Trinity. Superman giải thích rằng họ đang theo dõi một kẻ giết người mạo danh có thể có nguồn gốc từ Trung Quốc. Batman nói rằng dấu vết dẫn đến cao nguyên Hoàng Thổ.
+  
+  Nhóm Greate Ten hộ tống Trinity đến phòng thí nghiệm bí mật của Dr.Omen. WW cáo buộc Omen đã thu thập và kiểm soát những năng lượng tàn dư của Superman và thí nghiệm chúng. Dr.Omen phủ nhận mọi cáo buộc, nhưng Superman cảm nhận được năng lượng đó. Trước sức ép của Greate Ten, Omen đã thừa nhận rằng cô đang thu thập năng lượng và sử dụng chúng để tạo ra Superman mới. Tuy nhiên cô khẳng định rằng sinh vật của cô chưa bao giờ rời khỏi phòng thì nghiệm và Superman thấy rằng đó cũng ko phải Energy Superman mà họ tìm.
+  
+  Đột nhiên, Dr.Omen giải phóng thí nghiệm của mình và sinh vật này nhanh chóng biến mất. Superman ngỏ ý muốn đi bắt sinh vật này nhưng nhóm The Greate Ten khẳng định sẽ tự xử lý. Trinity đồng ý rời khỏi Trung Quốc ngay lập tức.
+  
+  Tại Metropolis, Energy Superman đến gặp Lois và đề nghị nói chuyện trước s
   
   
