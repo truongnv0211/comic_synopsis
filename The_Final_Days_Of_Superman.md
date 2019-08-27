@@ -57,6 +57,10 @@
   
   Đột nhiên, Dr.Omen giải phóng thí nghiệm của mình và sinh vật này nhanh chóng biến mất. Superman ngỏ ý muốn đi bắt sinh vật này nhưng nhóm The Greate Ten khẳng định sẽ tự xử lý. Trinity đồng ý rời khỏi Trung Quốc ngay lập tức.
   
-  Tại Metropolis, Energy Superman đến gặp Lois và đề nghị nói chuyện trước s
+  Tại Metropolis, Energy Superman đến gặp Lois và đề nghị nói chuyện trước sự ngỡ ngàng và lo lắng của Lois.
+  
+### Action Comic #52
+
+  
   
   
