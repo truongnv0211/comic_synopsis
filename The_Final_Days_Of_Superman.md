@@ -61,6 +61,34 @@
   
 ### Action Comic #52
 
+  Trinity tiếp tục truy tìm Energy Superman. Khi đang đang bay thì Superman cảm thấy không khỏe, WW khuyên anh nên nghỉ một chút nhưng Clark nói anh sẽ không dừng lại cho đến khi tìm đc hắn. Đột nhiên Superman ngất đi và rơi xuống ngay trước mặt WW, Batman đã phải dùng Batwing để đỡ Superman và đưa Clark vào trong nghỉ ngơi.
   
+  Energy Superman đang ở chỗ Lois và Lois buộc phải nói chuyện với anh ta mặc dù rất lo lắng. Hắn ta nói rằng hắn không có ý dọa ai nhưng Lois trả lời rằng bất cứ ai mang chữ S trước ngực luôn giúp đỡ mọi người và không làm họ sợ hãi hay giết người người vô tội. Energy Superman bào chữa rằng anh ta chỉ tự vệ khỏi những kẻ muốn giam cầm mình mãi mãi và anh ta đến đây vì Lois là người duy nhất khiến anh ta cảm thấy an toàn. Sau đó anh ta đề nghị chỉ cho cô một bí mật.
   
+  Trong khi đó tại Salinas, California, Clark White đang cùng Jon chuẩn bị bữa tối thì Energy Superman đến gõ cửa nhà họ, đi cùng hắn là Lois. Dù khá bối rối nhưng Clark vẫn mời họ vào nhà và đưa Jon nép ra phía sau mình. Jon thắc mắc về biểu tượng chữ "S" của vị khách trong khi Lois khá bất ngờ với những tấm ảnh chụp trong nhà. Sau khi nói chuyện một lát thì Energy Superman nói rằng Clark đứng trước mặt họ cũng là Superman rồi sau đó lao lên tấn công anh để chứng minh quan điểm của mình. Clark tự bảo vệ mình và đáp trả lại Energy Superman vì dám tấn công anh ta. Lois và Jon buộc phải rời khỏi nhà do nó đang sụp xuống vì trận chiến. Khi nghe lời căn dặn của Lois trước khi đuổi theo 2 Superman thì Jon nhận xét Lois giống hệt mẹ cậu.
   
+  Trên bầu trời, Batman đã phát hiện ra bức xạ của Energy Superman và cũng đúng lúc này tình trạng của Superman trở nên tệ hơn, anh muốn bay đến đó nhưng WW và Batman đã cản lại. Họ sẽ cùng nhau tới đó. Khi họ đáp xuống thì Superman của thế giới này nhìn thấy Clark White. Clark White nói răng không có thời gian để giải thích. Đúng lúc này Lois trở về nhà và hoảng sợ trước khung cảnh đổ nát, cô đi tìm Jon và Clark. Nghe thấy tiếng gọi của Lois, Clark White nhanh chóng quay lại và đưa 2 mẹ con đến nơi an toàn, anh để lại Trinity đối đầu với Energy Superman. Hết chapter.
+  
+  ### Superman/Wonder Woman #29
+  
+  Trinity đối mặt với Energy Superman, lúc này sự tỉnh táo của hắn hoàn toàn biến mất. Hắn ta thực sự tin rằng mình chính là Superman và anh ta muốn giết Superman thật. Lúc này Lois xuất hiện và hắn ta ngay lập tức tấn công cô nhưng Superman đã can thiệp và ngăn cản tia năng lượng. Superman yêu cầu Batman đưa Lois ra khỏi nơi nguy hiểm rồi cùng WW chiến đấu với Energy Superman.
+  
+  Pre-Flashpoint Superman đưa gia đình mình đến Pháo đài bí mật của mình để ấn náu. Lois tỏ vẻ không vui vì Clark đã giấu cô xây dựng một nơi như thế.
+  
+  Batman đưa Lois đến trạm xăng đầu tiên anh gặp trên đường rồi quay trở lại chiến trường. Không nản lòng vì Batman bỏ mình lại, Lois rút điện thoại và thuê một chiếc máy bay trực thăng.
+  
+  Clark và Diana chiến đấu Energy Superman rất ác liệt nhưng hắn quá mạnh. Trong một khoảnh khắc khi hai người phối hợp tấn công thì Energy Superman đã trở lại hình dạng người và Clark nhận ra hắn là ai. Nhưng rất nhanh hắn trở lại dạng sức mạnh và hạ gục WW trước khi tóm lấy Clark và bay lên.
+  
+  Tại National City, khi đang được sạc năng lượng mặt trời để khôi phục sức mạnh thì Supergirl nghe tin Superman gặp nguy hiểm. Cô yêu cầu các nhân viên của D.E.O mở cửa để mình có thể ra ngoài. Hết chapter.
+  
+  ### Superman #52
+  
+  Energy Superman muốn trở thành siêu nhân duy nhất bằng cách giết chết Superman gốc. Clark từ chối công nhận hắn là Superman và nói cho hắn biết hắn thực sự là ai. Hắn là Denny Swan, một người thường bị nguồn năng lượng chứa gen đột biến của Superman đánh trúng. Đó là lý do tại sao hắn nghĩ rằng mình là Clark, là Superman và hắn biết mọi thứ về anh. Sức mạnh của Denny trở nên bất ổn trong phút chốc và hắn bị Supergirl cùng WW và Batman tấn công. Superman nhân cơ hội này đã tóm lấy hắn và cố đưa hắn lên bầu khí quyển, nơi anh định dùng Solar Flare của mình để chống lại nguồn năng lượng không ổn định của Denny, nhưng sức mạnh của anh yếu dần trước khi anh có thể đạt được quỹ đạo mong muốn và anh bắt đầu rơi trở lại mặt đất.
+  
+  May mắn thay, đúng lúc này Pre-Flashpoint Superman đã đến giúp đỡ anh có để đạt độ cao cần thiết. Superman Prime Earth cảm ơn anh ta vì sự giúp đỡ và yêu cầu anh ta tiếp tục bảo vệ trái đất ở vị trí của mình ngay trước khi ném anh ta trở lại mặt đất. Sau đó Superman Prime Earth sử dụng chiêu Solar Flare ngay khi Denny phát nổ. Kế hoạch đã hoạt động và cả hai vụ nổ triệt tiêu nhau. Denny bị thiêu hủy trong khi Clark rơi trở lại Trái đất. Pre-Flashpoint Superman bắt được anh ta trước khi anh chạm đất.
+
+  Thật không may vụ nhiệm độc Krytonite của Superman đã đến giai đoạn cuối và các anh hùng tập hợp lại để cùng chia sẽ những khoảnh khắc cuối cùng với người đàn ông thép. Anh cảm ơn họ vì tình bạn và tình yêu; anh nói lời tạm biệt với Lois và Lana, anh nhắc Supergirl tiếp tục di sản của mình; cảm ơn Steel vì đã trở lại; cảm ơn Batman vì là đồng đội và là bạn; cảm ơn WW vì tất cả mọi thứ. Superman đã ra đi, cơ thể anh trở thành cát bụi chỉ còn lại chiếc áo choàng. Pre-Flashpoint Superman rời đi sau khi hứa sẽ trả lời câu hỏi của họ và sẽ tìm tới họ sau.  Lois, Kara, Lana, Bruce, Diana và Steel vẫn ở lại và thương tiếc anh.
+  
+  Sau đó, thế giới thương tiếc về cái chết của Superman. Trong thời gian này, Luthor đã tạo cho mình một bộ giáp mới dựa trên đồng phục của Superman và Lois thì bắt đầu viết một bài báo mới: "Superman: A Hero’s Life." Hết
+
+
